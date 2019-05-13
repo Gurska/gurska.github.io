@@ -1,2 +1,0 @@
-# gurska.github.io
-Gurska
